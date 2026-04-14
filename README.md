@@ -1,1 +1,0 @@
-# SalesTrend-Portfolio
